@@ -102,3 +102,6 @@
 **欢迎 Star & Issue 交流观点！**
 
 **标签**：虚拟信用卡 | 稳定币 | USDT | 币圈支付 | CoreGold | 2026趋势
+
+<img width="1552" height="1013" alt="8c1da44e-b8e4-4e94-a448-819587780d3e" src="https://github.com/user-attachments/assets/f85373fe-a4e9-4952-9060-e11c33de9237" />
+
